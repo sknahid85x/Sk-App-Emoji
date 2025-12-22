@@ -1,0 +1,2 @@
+# Sk-App-Emoji
+Assalamualaikum 💝
